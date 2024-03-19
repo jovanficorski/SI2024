@@ -1,0 +1,1 @@
+Miki e sekoj den pijan
